@@ -1,0 +1,1 @@
+# test_kolorovyj-finganwo2u7
